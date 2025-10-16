@@ -1,4 +1,4 @@
-# Snapchat-for-Business-Coupon-Code- Spend $350, Get $375 FREE 🔥
+# Snapchat for Business Coupon Code- Spend $350, Get $375 FREE 🔥
 **Grab Your Exclusive Snapchat Coupons!**
 
 Get started with Snapchat ads and double your budget! Choose from these amazing coupon deals:
