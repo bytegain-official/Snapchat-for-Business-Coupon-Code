@@ -53,7 +53,7 @@ Don’t worry – I’ll walk you through every click. Follow these simple steps
 <img width="1536" height="742" alt="image" src="https://github.com/user-attachments/assets/0e99be63-2d82-47e7-a26b-be827c53702d" />
 
 - Open your phone or computer.
-- Go to [forbusiness.snapchat.com](https://www.bloggersideas.com/Recommended/snapchatforbusiness/).
+- Go to [snapchatforbusiness.com](https://www.bloggersideas.com/Recommended/snapchatforbusiness/).
 - Click the red button: "Create an Ad."
 
 ### Step 2: Make Your New Account (3 minutes)
